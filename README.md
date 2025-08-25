@@ -62,7 +62,7 @@
 
 - **Encargada de departamento:** Gestión y liderazgo de equipos multidisciplinares.
 - **Resolutiva:** Me apasiona encontrar soluciones prácticas y creativas.
-- **Aprendizaje continuo:** Autodidacta en impresión 3D, desarrollo web y nuevas tecnologías.
+- **Aprendizaje continuo:** Autodidacta en impresión 3D y producción musical/DJing, con interés en algorave y nuevas tecnologías
 - **Comunicación y empatía:** Clave en mi forma de trabajar y relacionarme.
 - **Pasión por la música y la fotografía:** Siempre buscando inspiración en el arte y la creatividad.
 
